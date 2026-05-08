@@ -1,1 +1,1 @@
-## ✣ Kin-ing no one.. i დ Dandys world ! idk how 2 add pictures here rlly, ꔛ follow my github 4 a hug 🫂
+## ✣ Kin-ing no one.. i დ Dandys world ! idk how 2 add pictures here rlly, ꔛ follow my github 4 a hug 🫂 * 𝘪 𝘴𝘩𝘪𝘱 (𝘶𝘯𝘱𝘭𝘢𝘵𝘰𝘯𝘪𝘤𝘢𝘭𝘭𝘺) ... 𝙘𝙤𝙤𝙠𝙞𝙚𝙗𝙚𝙧𝙧𝙮, 𝐬𝐡𝐞𝐥𝐥𝐯𝐢𝐬𝐢𝐨𝐧, ｍｏｏｎｆｌｏｗｅｒ, ᧁׁԋׁׅ֮ᨵׁׅׅׅ꯱ƚׁׅႦαʅʅσσɳ ａｎｄ 𝖘𝖔𝖒𝖊 ᗰＯᖇᗴ ! ᵐᵘˡᵗᶦˢʰᶦᵖᵖᵉʳ ʰᵉʳᵉ.. 
