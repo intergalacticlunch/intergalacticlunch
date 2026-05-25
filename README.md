@@ -4,3 +4,5 @@
 
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
         
+<img width="784" height="410" alt="Image" src="https://github.com/user-attachments/assets/bf836dde-5dd6-4b26-8c52-472866911432" />
+⌗ Ribecca irl 🍰 ! 𝙖𝙣𝙮 ship is fine ⬳ will thank u if 👑'd 𖥔 .'𝘿𝙤𝙚𝙨 𝙩𝙝𝙞𝙨 𝙩𝙝𝙞𝙣𝙜 𝙬𝙤𝙧𝙠?' i ❥ Dandy's world
