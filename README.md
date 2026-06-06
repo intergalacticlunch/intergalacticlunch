@@ -4,4 +4,4 @@
    𝑠till a minor , pls dont be freaky w/ me unless very close friends
 <img width="2000" height="525" alt="Image" src="https://github.com/user-attachments/assets/5d5a3e4a-2d54-4567-8577-5ae3e957cda9" />
 fandoms r ⪼ 𝘿andy's 𝘞orld , 𝒮tar 𝔚ars , ᴛᴀᴅᴄ , a little of  ᵖoppy ₚlaytime and jjk ⧽
-  𝕊ometimes active on roblox ∿ , pls ask 2 befriend me , i may be shy sometimes , Anakin layout ⬆︎ by me 🎉  
+  𝕊ometimes active on roblox ∿ , pls ask 2 befriend me , i may be shy sometimes . Anakin layout ⬆︎ by me 🎉  
