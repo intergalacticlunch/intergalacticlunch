@@ -8,4 +8,4 @@ $\color{#B13525}{\text{ˋ 𝓨ou were like my brother , 𝐴nakin!! ˊ }}$
 $\color{#25578C}{\text{𝙰𝚗𝚊𝚔𝚒𝚗 𝚜𝚒𝚖𝚙 ! INT W/ CARE ! }}$  🌼 
 might be with friends or even alone . 
 
-$\color{#25578C}{\text{𝙼ay be shy sometimes . but int freely }}$ ⚠ ! 20+ dni nless parents, family or smn ik
+$\color{#25578C}{\text{𝙼ay be shy sometimes . but int freely }}$ ⚠ ! 20+ dni nless parents, family or smn ik very closely 
