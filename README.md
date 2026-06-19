@@ -5,9 +5,10 @@
 
 $\color{#B13525}{\text{ˋ 𝓨ou were like my brother , 𝐴nakin!! ˊ }}$ 
 
-$\color{#25578C}{\text{𝙰𝚗𝚊𝚔𝚒𝚗 𝚜𝚒𝚖𝚙 ! INT W/ CARE ! }}$  🌼 
-might be with friends or even alone . 
+$\color{#25578C}{\text{𝙰𝚗𝚊𝚔𝚒𝚗 𝚜𝚒𝚖𝚙 ! iwcare }}$  🌼 
+might be with friends or alone . 
 
 $\color{#FFE68E}{\text{𝙼ay be shy sometimes . but int freely }}$ 
 
-$\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very closely
+$\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very closely ︴
+fandoms : dandy's world , star wars, tadc , demon slayer, a bit of jjk and yeahh 
