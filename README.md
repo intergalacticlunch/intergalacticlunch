@@ -11,5 +11,16 @@ might be with friends or alone .
 $\color{#FFE68E}{\text{𝙼ay be shy sometimes . but int freely }}$ 
 
 $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very closely ︴
-fandoms :  star wars, tadc , demon slayer, a bit of jjk and yeahh . DNI ▻ problematics , proships , (on VERY thin ice , iwvvvvvvvec) , darkships  also other anakin yumeshippers dni sorry ! + dandys world griefers/toxic . 🎶 $\color{#627DC6}{\text{hee hee ! similar to the king/mj }}$
+ star wars, tadc , demon slayer, a bit of jjk and yeahh . 🎶 $\color{#627DC6}{\text{hee hee ! similar to the king/mj }}$
+ <details>
+  <summary>⸔ dni ' s ! clickk</summary>
 
+  ⧼ problematics , proships , (on VERY thin ice , iwvvvvvvvec) , darkships  also other anakin yumeshippers dni sorry ! + dandys world griefers/tox ⧽
+  
+</details>  
+<details>
+  <summary>fndms ! ♡ clickk </summary>
+  
+  star wars, tadc , demon slayer, a bit of jjk and yeahh 
+  
+</details>
