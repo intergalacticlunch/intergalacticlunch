@@ -13,7 +13,7 @@ might be with friends or alone .
 $\color{#FFE68E}{\text{𝙼ay be shy sometimes . but int freely }}$ 
 
 $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very closely ︴
- star wars, tadc , demon slayer, a bit of jjk and yeahh . 🎶 $\color{#627DC6}{\text{hee hee ! similar to the king/mj }}$
+ star wars, tadc , demon slayer, a bit of jjk and yeahh .
  <details>
   <summary>⸔ dni ' s ! clickk</summary>
 
@@ -25,5 +25,14 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
   
   star wars, tadc , demon slayer, a bit of jjk and yeahh 
   
+</details> <details>
+  <summary> moonwalks ! clickk</summary>
+  
+  mj is the goat argue with the wall 
+  
+   .  🎶 $\color{#627DC6}{\text{hee hee ! similar to the king/mj }}$
+  
 </details>
+
+
 
