@@ -31,6 +31,7 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
   mj is the goat argue with the wall 
   
    .  🎶 $\color{#627DC6}{\text{hee hee ! similar to the king/mj }}$
+    $\color{#627DC6}{\text{hee hee.. done 20 moonwalks 2day ︴}}$
   
 </details>
 
