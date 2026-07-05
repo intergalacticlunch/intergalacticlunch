@@ -17,7 +17,7 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
  <details>
   <summary>⸔ dni ' s ! clickk</summary>
 
-  ⧼ problematics , proships , (on VERY thin ice , iwvvvvvvvec) , darkships  also other anakin yumeshippers dni sorry ! + dandys world griefers/tox ⧽
+  ⧼ problematics , proships , (on VERY thin ice , iwvvvvvvvec) , darkships  also other anakin yumeshippers dni sorry ! + toxic  ⧽
   
 </details>  
 <details>
@@ -28,7 +28,7 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
 </details> <details>
   <summary> moonwalks ! clickk</summary>
   
-  mj is the goat argue with the wall 
+  mj is the goat argue with the wall!!
   
    .  🎶 $\color{#627DC6}{\text{hee hee .ᐟ  similar to the king/mj }}$
     $\color{#627DC6}{\text{do atleast  20 moonwalks 2day ! ! }}$ THE moonwalk counter 👀 :33
