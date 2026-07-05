@@ -30,9 +30,9 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
   
   mj is the goat argue with the wall 
   
-   .  🎶 $\color{#627DC6}{\text{hee hee ! similar to the king/mj }}$
-    $\color{#627DC6}{\text{do atleast  20 moonwalks 2day ︴! ! }}$
-  
+   .  🎶 $\color{#627DC6}{\text{hee hee .ᐟ  similar to the king/mj }}$
+    $\color{#627DC6}{\text{do atleast  20 moonwalks 2day ! ! }}$ THE moonwalk counter 👀 :33
+   
 </details>
 
 
