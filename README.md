@@ -1,8 +1,5 @@
 ## <img width="2000" height="357" alt="Image" src="https://github.com/user-attachments/assets/345f8411-adc2-419b-9969-2a0c4a9072b9" />
 
-୨୧ ✦ˋ $\color{#975427}{\text{𝔜𝐞𝐚𝐡 𝐥𝐢𝐭𝐭𝐥𝐞 𝐛𝐨𝐬𝐬 𝐦𝐚𝐧 ' ?}}$ $\color{#7cca92}{\text{Ribecca irl 🍰 !}}$ Ꭰoubles dni PLEASE 
-
-
 
 $\color{#B13525}{\text{ˋ 𝓨ou were like my brother , 𝐴nakin!! ˊ }}$ 
 
