@@ -1,5 +1,4 @@
 ## <img width="2000" height="357" alt="Image" src="https://github.com/user-attachments/assets/345f8411-adc2-419b-9969-2a0c4a9072b9" />
-:) 
 
 ୨୧ ✦ˋ $\color{#975427}{\text{𝔜𝐞𝐚𝐡 𝐥𝐢𝐭𝐭𝐥𝐞 𝐛𝐨𝐬𝐬 𝐦𝐚𝐧 ' ?}}$ $\color{#7cca92}{\text{Ribecca irl 🍰 !}}$ Ꭰoubles dni PLEASE 
 
@@ -17,7 +16,7 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
  <details>
   <summary>⸔ dni ' s ! clickk</summary>
 
-  ⧼ problematics , proships , (on VERY thin ice , iwvvvvvvvec) , darkships  also other anakin yumeshippers dni sorry ! + toxic  ⧽
+   basic dni , problematics , proships , darkships (on VERY thin ice , iwvvvvvec)  also other anakin yumeshippers dni sorry ! + toxic 
   
 </details>  
 <details>
