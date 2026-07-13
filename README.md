@@ -8,8 +8,7 @@ might be with friends or alone .
 
 $\color{#FFE68E}{\text{𝙼ay be shy sometimes . but int freely }}$ 
 
-$\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very closely ︴
- star wars, tadc , demon slayer, a bit of jjk and yeahh .
+$\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very closely ! 
  <details>
   <summary>⸔ dni ' s ! clickk</summary>
 
