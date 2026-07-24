@@ -1,5 +1,5 @@
-## <img width="2000" height="357" alt="Image" src="https://github.com/user-attachments/assets/345f8411-adc2-419b-9969-2a0c4a9072b9" />
-
+## 
+<img width="933" height="935" alt="Image" src="https://github.com/user-attachments/assets/63a6be40-c5c5-4fe7-bb67-ebacdb536f47" />
 
 $\color{#B13525}{\text{ˋ 𝓨ou were like my brother , 𝐴nakin!! ˊ }}$ 
 
