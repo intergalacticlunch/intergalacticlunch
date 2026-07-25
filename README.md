@@ -1,7 +1,9 @@
-## 
-<img width="933" height="935" alt="Image" src="https://github.com/user-attachments/assets/63a6be40-c5c5-4fe7-bb67-ebacdb536f47" />
+##   
+<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/c4a1464f-abfc-458c-8507-9153e9c17f0f" />
 
 $\color{#B13525}{\text{ˋ 𝓨ou were like my brother , 𝐴nakin!! ˊ }}$ 
+
+$\color{#FFD17C}{\text{split from regretevator is me irl ! }}$ $\color{#FFD17C}{\text{doubles dni pls }}$ 
 
 $\color{#25578C}{\text{𝙰𝚗𝚊𝚔𝚒𝚗 𝚜𝚒𝚖𝚙 ! iwcare }}$  🌼 
 might be with friends or alone . 
@@ -12,13 +14,13 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
  <details>
   <summary>⸔ dni ' s ! clickk</summary>
 
-   basic dni , problematics , proships , darkships (on VERY thin ice , iwvvvvvec)  also other anakin yumeshippers dni sorry ! + toxic 
+   basic dni , problematics , proships , darkships (on VERY thin ice , iwvvvvvec)  also other anakin yumeshippers dni sorry ! + toxic
   
 </details>  
 <details>
   <summary>fndms ! ♡ clickk </summary>
   
-  star wars, tadc , demon slayer, a bit of jjk and yeahh 
+  star wars, tadc , demon slayer, a bit of jjk and regretevatorr
   
 </details> <details>
   <summary> moonwalks ! clickk</summary>
