@@ -32,5 +32,5 @@ $\color{#99EFFF}{\text{⚠ ! 20+ dni}}$ nless parents, family or smn ik very clo
    
 </details>
 
-
+https://youtube.com/shorts/zHQgxkfMRKg?si=6KwKWfgOiM0acqaQ
 
