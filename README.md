@@ -1,9 +1,6 @@
 ##   
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/3d20d831-9bac-4be4-9c9b-f2a0dcac8447" />
-
-$\color{#B13525}{\text{ˋ 𝓨ou were like my brother , 𝐴nakin!! ˊ }}$ 
-
-$\color{#FFD17C}{\text{ . int freely ⌑}}$
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
 
