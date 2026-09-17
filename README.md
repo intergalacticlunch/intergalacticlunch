@@ -1,5 +1,5 @@
-##   
-<img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/3d20d831-9bac-4be4-9c9b-f2a0dcac8447" />
+##  
+<img width="492" height="507" alt="Image" src="https://github.com/user-attachments/assets/0bf1aefd-fef7-41c9-a677-33a978f2dfcc" />
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
 
 $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
