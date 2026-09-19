@@ -1,5 +1,5 @@
 ## 　　　　
-　　　　　　　　　　　　　　hollup ok　　　　　　
+　　　　　　<img width="2000" height="400" alt="Image" src="https://github.com/user-attachments/assets/5ebc9b36-b27d-4eec-a388-8de00c57d7f2" />　　　　　　　　　　　
 
 $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
 
