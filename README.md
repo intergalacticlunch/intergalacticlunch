@@ -5,7 +5,12 @@ $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　�
 
 $\color{#FFE68E}{\text{ split hvykin }}$ 
 
-　　　　　　 $\color{#280B0B}{\text{ basic dni ; iwcare '.}}$ 
+　　　　　　 $\color{#280B0B}{\text{ basic dni ; iwcare '.}}$ <kbd>
+banana<br> 
+split<br>
+regretevator<br>
+</kbd>
+
        
 <details>
   <summary> ♡ clickk 4 info </summary>
