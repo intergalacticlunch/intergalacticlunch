@@ -3,6 +3,11 @@
 <p align="center">
 <img src="https://files.catbox.moe/vh598h.png" width="850" alt="...">
 </p>
+<p align="center">
+
+<p align="center">
+<img src="https://files.catbox.moe/j7xw6t.jpg" width="850" alt="...">
+</p>
 
 $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
 
