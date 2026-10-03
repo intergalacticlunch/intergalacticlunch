@@ -5,9 +5,8 @@
 </p>
 <p align="center">
 
-<p align="center">
-<img src="https://files.catbox.moe/4rhjbb.png" width="850" alt="...">
-</p>
+<img width="2000" height="2000" alt="Untitled335_20261003114415" src="https://github.com/user-attachments/assets/b1d5fb59-92d7-4204-af8c-d9069352c0a8" />
+
 
 $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
 
