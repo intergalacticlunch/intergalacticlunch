@@ -12,7 +12,7 @@ $\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　�
 
 $\color{#FFE68E}{\text{ split hvykin }}$ 
 
-　　　　　　 $\color{#511818}{\text{ basic dni ; iwcare '.}}$ <kbd>
+　　　　　　 $\color{#511818}{\text{ ᥴһіᥣᥣ gᥙі }}$ <kbd>
 banana<br> 
 split<br>
 regretevator<br>
