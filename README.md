@@ -12,11 +12,8 @@ $\color{#5B6885}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　�
 
 $\color{#FFE68E}{\text{ split hvykin }}$ 
 
-　　　　　　 $\color{#C2915D}{\text{ ᥴһіᥣᥣ gᥙі }}$ <kbd>
-banana<br> 
-split<br>
-regretevator<br>
-</kbd>
+　　　　　　 $\color{#C2915D}{\text{ ᥴһіᥣᥣ }}$ $\color{#A04F75}{\text{ gᥙі }}$ 
+
 
        
 <details>
