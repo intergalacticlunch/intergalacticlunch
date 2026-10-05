@@ -8,7 +8,7 @@
 <img width="2000" height="2000" alt="Untitled335_20261003114415" src="https://github.com/user-attachments/assets/b1d5fb59-92d7-4204-af8c-d9069352c0a8" />
 
 
-$\color{#25578C}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
+$\color{#5B6885}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
 
 $\color{#FFE68E}{\text{ split hvykin }}$ 
 
