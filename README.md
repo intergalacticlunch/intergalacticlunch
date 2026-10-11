@@ -9,7 +9,7 @@
 
 
 
-$\color{#5B6885}{\text{i like anakin skywalker ♡}}$  🌼 　　　　　　　 with friends or alone . 
+$\color{#5B6885}{\text{ 𝚗0 𝚜𝚝𝚊𝚛 𝚠𝚊𝚛𝚜 𝚊𝚗𝚍 𝚊𝚗𝚊𝚔𝚒𝚗 𝚏𝚊𝚗 ♡}}$  　　　　　　　" 𝘺𝘰𝘶 𝘨𝘰𝘵 𝘢 𝘧𝘳𝘪𝘦𝘯𝘥 𝘪𝘯 𝘮𝘦 "　　　　　　　
 
 $\color{#FFE68E}{\text{ split hvykin }}$ 
 
