@@ -5,7 +5,6 @@
 </p>
 <p align="center">
 
-<img width="1767" height="1259" alt="Clipped_image_20261024_111117" src="https://github.com/user-attachments/assets/07bbe141-de28-4dd5-99c7-2af492756bf2" />
 
 
 
@@ -17,21 +16,11 @@ $\color{#FFE68E}{\text{ split hvykin }}$
 
 
 
-       
-<details>
-  <summary> ♡ clickk 4 info </summary>
-  　　　　hey there person/alien ⊹
- michael jackson fan #mjinnocent! 　　　　⊱　　 $\color{#913044}{\text{ int }}$ $\color{#364F86}{\text{ freely .}}$  
- 　　　　　　　always feel free to vent and/or rant+ to me i genuinely wont mind 
-      　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-IWC : anakin yumes , U11 ig UNLESS irl
-　　　
-   　　　　　　　aight now for the general dnis 
-   　　　　　  
-   　　　　　　ICE supporters / workers, generally racist people , proshippers  　　　and　　　　darkshippers
-  　　　　
-
-     hee hee  ♡ 　　🐾　　　.ೄྀ
+　　　　　　　　　　　　<details>
+  <summary> ღ ᗩ lil abt me !</summary>
+  
+  d
+  
 </details>
 
 
